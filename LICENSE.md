@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with jujutsu infinite professional Scripts, the #1 Script. Includes aimbot and auto-collect for
 
 
 
